@@ -1,0 +1,1 @@
+# rickyfuk.github.io
